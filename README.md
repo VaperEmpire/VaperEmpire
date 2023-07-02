@@ -13,7 +13,7 @@ Vape types at Vaper Empire include vape pens, vape mods, cig-a-likes, and pod va
 <br>
 E-juice at Vaper Empire complies with the European Union's standards outlined in the <a href="https://health.ec.europa.eu/system/files/2016-11/dir_201440_en_0.pdf">TPD</a>. Flavours vary greatly and nicotine strength options are numerous.
 
-<h4>Customer Testimonials</h4>
+<h4>Vaper Empire Vape Reviews</h4>
 <a href="https://vapeforest.com/viggo-pod-vape-review/">VapeForest.com</a> called our Viggo Series pod system "one sweet vape."
 <br><a href="https://blog.vapefuse.com/vaper-empire-viggo-review/">VapeFuse.com</a> called our Viggo "a great way to switch from smoking to vaping."
 <br><a href="https://www.vapersgarage.com/hardware-review-viggo-pod-kit-vaper-empire/">VapersGarage.com</a> called our Viggo "perfect."
