@@ -14,7 +14,7 @@ Vape types at Vaper Empire include vape pens, vape mods, cig-a-likes, and pod va
 E-juice at Vaper Empire complies with the European Union's standards outlined in the <a href="https://health.ec.europa.eu/system/files/2016-11/dir_201440_en_0.pdf">TPD</a>. Flavours vary greatly and nicotine strength options are numerous.
 <br>
 <br>
-Vape juice flavour categories include:
+Vape juice flavour categories offered by Vaper Empire include:
 <br>- Drink/soda
 <br>- Tobacco
 <br>- Mint/menthol
