@@ -1,4 +1,4 @@
-<h2>About Vaper Empire:</h2>
+<h2>About Vaper Empire</h2>
 Vaper Empire, a leading e-cigarette & vape juice company founded in 2012, has been providing adult smokers with access to the vaping products that they need to switch from smoking to vaping. In order to better serve customers across Australasia, Vaper Empire operates an online vape store with customer service available by telephone, e-mail, and live chat. The store stocks all of the Vaper Empire vapes, vape juice, starter kits, and e-cig accessories that are available to adult consumers.
 
 <h3>Vaping Products</h3>
