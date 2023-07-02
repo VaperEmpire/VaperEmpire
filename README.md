@@ -6,6 +6,12 @@ The complete line of vaping products that Vaper Empire offers includes:
 <br>- <a href="https://www.vaperempire.com.au/product-store.html">Vaping devices & vape starter kits</a>
 <br>- <a href="https://www.vaperempire.com.au/e-liquid-store.html">Flavoured e-juice in various nicotine strengths</a>
 <br>- <a href="https://www.vaperempire.com.au/product-store/accessories-range.html">Replacement parts for e-cigarettes & vaping accessories</a>
+<br>
+<br>
+Vape types at Vaper Empire include vape pens, vape mods, cig-a-likes, and pod vapes. E-juice can be purchased in bottles, pods, and carts. Value packs are available, helping customers save money when they order premium e-juice. Starter kits can be purchased with or without e-juice and include everything required for device operation. All vapes are covered by a limited manufacturer warranty.
+<br>
+<br>
+E-juice at Vaper Empire complies with the European Union's standards outlined in the <a href="https://health.ec.europa.eu/system/files/2016-11/dir_201440_en_0.pdf">TPD</a>. Flavours vary greatly and nicotine strength options are numerous.
 
 <h4>Customer Testimonials</h4>
 <a href="https://vapeforest.com/viggo-pod-vape-review/">VapeForest.com</a> called our Viggo Series pod system "one sweet vape."
